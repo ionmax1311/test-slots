@@ -1,1 +1,1 @@
-https://ionmax1311.github.io/slots_test/
+https://ionmax1311.github.io/test-slots/
